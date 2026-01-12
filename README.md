@@ -1,2 +1,2 @@
 # TECH-ACCESSORIES-STORE
-Electronic devuces
+Electronic devices that available in online
